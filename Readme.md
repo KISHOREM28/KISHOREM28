@@ -5,7 +5,7 @@
 
 ## 🚀 About Me
 
-- 🎓 Currently diving deep into the world of algorithms and data structures with a creative designer approach.
+- 🎓 Currently diving deep into the world of design and creatvity with the art of my every strokes.
 - 💡 Always eager to explore new technologies and innovative solutions.
 - 🤝 Open to collaboration on projects that make an impact.
 
